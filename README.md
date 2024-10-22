@@ -1,2 +1,2 @@
 # Alurafut
-confira os dribles umilhantes do r10
+confira os dribles humilhantes do r10
